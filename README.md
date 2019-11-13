@@ -4,9 +4,9 @@ Doing voice acting is a lot harder than you think, mostly when you have to act a
 > -Ian McKellen.
 
 # Terminology
-Set people you want to voice.
-Warm up your voice.
-Speak as the character you are voicing.
+* Set people you want to voice.
+* Warm up your voice.
+* Speak as the character you are voicing.
 
 # Muscles of the throat
 ![Throat Muscle](https://www.mda.org/sites/default/files/throat.jpg)
