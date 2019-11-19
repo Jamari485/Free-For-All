@@ -36,3 +36,11 @@ The most important thing muscles for voice acting is the *mouth, tounge ,and min
 
 ## Auditoning
 1. Attend an open call.
+2. Audition online.
+3. Audition as much as possible.
+4. Prepare ahead of time.
+5. Showup on time.
+6. Dress appropriately.
+
+# Future plans
+In the future I want to develop
