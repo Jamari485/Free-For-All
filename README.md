@@ -43,4 +43,4 @@ The most important thing muscles for voice acting is the *mouth, tounge ,and min
 6. Dress appropriately.
 
 # Future plans
-In the future I want to develop
+In the future I want to develop my voice acting talent and expand on the characters I want to do but also improve characters i'm already good with to better my proformence. I also want to do roles for people other than my family to see. Yes I hsve hsd friends listen to me as well but I want to move on to something a little bigger like possible youtube. I also want my work to be recednized by other as well so i could get jobs in voice acting in games and possible shows as well. Although I have a long way to go if I want to get on that level.
